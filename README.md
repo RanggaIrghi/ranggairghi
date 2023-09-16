@@ -6,6 +6,6 @@
 
 🌱 I strongly believe in the power of source and the value of a collaborative developer community. Lets learn and grow together!
 
-📫 If you want to reach out to me you can mail find me on sosial media on left or mail me mohammadranggairghivya@gmail.com.
+📫 If you want to reach out to me you can find me on sosial media on left or mail me mohammadranggairghivya@gmail.com.
 
 Happy coding! 🚀
