@@ -8,6 +8,4 @@
 
 📫 If you want to reach out to me you can find me on sosial media on left or mail me mohammadranggairghivya@gmail.com.
 
-https://www.instagram.com/ranggairghivya/
-
 Happy coding! 🚀
